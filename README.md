@@ -1,2 +1,2 @@
  # Teacher
- Mam name is shradha khapra
+ Mam name is shradha khapra .
